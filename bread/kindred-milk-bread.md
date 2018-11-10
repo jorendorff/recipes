@@ -1,3 +1,5 @@
+# Kindred milk bread
+
 *Author Notes: This recipe is served as a starter to each dinner table at Kindred Restaurant in Davidson, North Carolina. But the dough doesn't stop there. It can be used as sandwich bread, French toast, burger buns, doughnuts, and more. This is a bread that merges utility and taste, seamlessly. —catherine margaret o'donnell*
 
 Makes: 6 rolls, two 9- by 5-inch loaves, or 12 split-top buns

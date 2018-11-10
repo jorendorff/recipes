@@ -1,6 +1,6 @@
 # Kitchen sink tear-and-share
 
-*(Olivia's idea. Fillings chosen Kristen. She of course had a half dozen more equally wonderful ideas while we were making it, which I forgot.)*
+*(Adapted from [this recipe](https://www.fivehearthome.com/savory-herb-cheese-monkey-bread/) which was adapted from [this recipe](https://www.foodnetwork.com/fn-dish/2013/11/how-to-make-savory-monkey-bread). Olivia's idea. Fillings chosen Kristen. She of course had a half dozen more equally wonderful ideas while we were making it, which I forgot.)*
 
 Fun festive novelty thing in three easy steps!
 
