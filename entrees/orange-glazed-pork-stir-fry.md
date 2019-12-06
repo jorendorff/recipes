@@ -2,7 +2,10 @@
 
 *I found [this
 recipe](https://www.foodnetwork.com/recipes/food-network-kitchen/garlic-and-vinegar-glazed-pork-chops-with-scallions-5297648)
-and replaced the vinegar with oranges. Good with rice and green beans.*
+and replaced the vinegar with oranges.
+Tried zesting the oranges once and it was too much. Orange peel is right.*
+
+*Good with rice and green beans.*
 
 Mix in a small bowl:
 
