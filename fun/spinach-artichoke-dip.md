@@ -1,8 +1,12 @@
-from Cook's Country OCt/Nov 2019, p. 16.
+from Cook's Country Oct/Nov 2019, p. 16.
 
 Heat oven to 400F.
 
-Heat oil in medium skillet over medium-high until shimmering. Add
+Heat in medium skillet over medium-high until shimmering:
+
+* 1 tbsp olive oil
+
+Add
 
 * 3 garlic cloves, minced
 
@@ -19,8 +23,15 @@ Off heat, add
 
 * 8 ounces cream cheese, soften
 
-and stir until melted and combined about 1 minute.
+stir until melted and combined, about 1 minute.
 Add:
+
+*   6 ounces gouda, shredded (1 1/2 cups)
+*   3 ounces Parmesan, grated (1 1/2 cups)
+*   1 1/3 cups marinated artichoke hearts, chopped
+*   1 cup mayonnaise
+*   1/4 tsp pepper
+*   1/8 tsp cayenne pepper
 
 Stir until combined, transfer to 2-quart baking dish.
 
