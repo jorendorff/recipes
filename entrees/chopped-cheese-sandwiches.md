@@ -16,7 +16,7 @@ Combine in a large skillet:
 I bet a jalapeno would be good in there, minus the seeds.
 
 Cook medium-high, constantly breaking up meat into small pieces, until
-cooked through and excess moister is driven off, about 8 minutes.
+cooked through and excess moisture is driven off, about 8 minutes.
 
 Arrange on baking sheet
 
