@@ -34,7 +34,7 @@ Sprinkle:
 Put fillets on vegetables. Top with
 
 * [ ] 1/2 cup minced sun-dried tomatoes
-* [ ] 2 tbs oil from the tomatoes
+* [ ] 2 tbsp oil from the tomatoes
 
 Place remaining 4 squares of foil on top. Make sealed packets. Transfer
 to center of sheet with potatoes. Bake until fish flakes apart when

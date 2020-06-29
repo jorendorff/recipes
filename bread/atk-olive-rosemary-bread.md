@@ -76,7 +76,7 @@ You need a spray bottle and a baking stone.*
 
     Spray loaves lightly with water.
     Transfer the loaves to the baking stone.
-    Bake 15 minutes, spraying loaves with water twice more in the first 5 minutes.
+    Bake 15 minutes, spraying the loaves with water twice more in the first 5 minutes.
 
 9.  Reduce oven temperature to 375ºF.
     Bake until deep golden brown and the center of each loaf registers 210ºF, 25 to 30 minutes.
