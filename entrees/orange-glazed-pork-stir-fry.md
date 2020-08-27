@@ -7,6 +7,11 @@ Tried zesting the oranges once and it was too much. Orange peel is right.*
 
 *Good with rice and green beans.*
 
+Slice 1/4 inch thick:
+
+*   4 pork chops
+*   3 red/orange/yellow bell peppers and/or small yellow onions
+
 Mix in a small bowl:
 
 *   1/2 cup soy sauce
@@ -22,15 +27,11 @@ In a large skillet, heat to medium high:
 
 *   2 tbsp coconut oil
 
-When hot, add
+When hot, add the sliced peppers and onions and:
 
-*   3 red/orange/yellow bell peppers and/or small yellow onions, sliced
 *   salt and pepper to taste
 
-Cook, stirring, until crisp-tender, about 3 minutes. Add
-
-*   4 pork chops, sliced 1/4 inch thick
-
+Cook, stirring, until crisp-tender, about 3 minutes. Add pork.
 Stir fry 1 minute. Dump in the sauce, crank the heat, boil until pork is
 cooked through and glazed, 1-2 minutes.
 
