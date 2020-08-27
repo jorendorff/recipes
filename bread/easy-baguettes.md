@@ -50,7 +50,7 @@ https://www.thespruceeats.com/baguette-recipe-four-hour-bread-stangenbrot-144652
 
 ### Scoring and Baking
 
--   Preheat the oven to 450 F. Place a rectangular cake pan or another type of high-sided pan on the bottom rack to heat and adjust the top rack halfway up. If you have a bread stone, heat it on the top rack. Heat 2 cups of water in a kettle.
+-   Preheat the oven to 450°F. Place a rectangular cake pan or another type of high-sided pan on the bottom rack to heat and adjust the top rack halfway up. If you have a bread stone, heat it on the top rack. Heat 2 cups of water in a kettle.
 
 -   Once risen, slash the top of the baguettes with a lame, razor blade, or even a serrated bread knife. The cuts should be at an acute angle to the length of the loaf and parallel to each other.
 
@@ -65,3 +65,5 @@ https://www.thespruceeats.com/baguette-recipe-four-hour-bread-stangenbrot-144652
 -   Remove the bread from the oven and cool on a wire rack for good air circulation.
 
 -   Eat baguettes within 4 hours of baking for best taste or wrap in plastic foil and freeze for up to three months.
+
+*("Plastic foil" is in the original. Presumably means both.)*
