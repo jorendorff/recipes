@@ -23,7 +23,7 @@ fridge.)*
     * [ ] 2 cups (300g) bread flour
     * [ ] 2 tsp (12g) salt
     * [ ] 1 tsp (8g) honey
-    * [ ] 1 tsps (7g) olive oil
+    * [ ] 1 tsp (7g) olive oil
 
     Gently mix. Dough will be wet and shaggy. Cover and rest 15-60 minutes.
 
