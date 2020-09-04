@@ -152,3 +152,9 @@ Olivia says to parboil the potatoes first, keeps the flesh from turning
 black like octopus (which these did, but I didn't notice because the
 scorched parts masked it).
 
+
+## Steak
+
+https://www.youtube.com/watch?v=PH-GPARbRWs
+
+Not bad at all. I really want more of a crust though.

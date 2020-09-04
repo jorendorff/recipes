@@ -2,7 +2,7 @@
 
 https://www.thekitchn.com/smash-burger-recipe-23022633
 
-*Good, would make again.*
+*Yup.*
 
 1.  Get the buns and toppings ready.
 
