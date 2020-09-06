@@ -11,14 +11,7 @@ You'll need
 Carve the chicken and discard the skin and bones. Shred the meat into
 bite-size pieces (should make about 3 cups).
 
-Make cole slaw. If you don't have a jar of cole slaw dressing, you can
-make it from scratch. Combine:
-
-* [ ] 2 cups thinly sliced red cabbage
-* [ ] 1/2 cup sour cream
-* [ ] 2 tbsp bread-and-butter pickle juice
-* [ ] 1/2 tsp salt
-* [ ] 1/2 tsp pepper
+Make [cole slaw][1].
 
 In medium saucepan over high heat, combine and bring to a boil:
 
@@ -31,3 +24,5 @@ Cook until reduced by half, 8-10 minutes. Stir in chicken and cook
 until warmed through, about 1 minute. Remove from heat.
 
 Toast buns. Make sandwiches.
+
+[1]: ../sides/cole-slaw.md
