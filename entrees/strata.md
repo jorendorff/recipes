@@ -1,6 +1,15 @@
 # Test Kitchen Strata
 
-*A favorite from season 1 of the _America's Test Kitchen_ TV show.*
+Serves 4-6.
+
+*A brunch favorite from season 1 of the _America's Test Kitchen_ TV show.*
+
+*Perfect for brunch because (1) you do all the work the previous night,
+leaving you free to prep other stuff on brunch morning; (2) you can
+double the recipe and serve 12, no trouble, and bake both in your oven
+side by side; (3) it's too much food for a normal-sized meal, yet it
+goes best with a few light, fresh side dishes—even more food—since it's
+rather filling.*
 
 
 ## The night before
@@ -43,3 +52,7 @@ something on it to press it down.  Refrigerate overnight.
 ## Baking
 
 Remove wrap, bake at 325°F until puffy, 50-75 minutes.
+
+*(Don't panic if you put a knife into this and find it's very soft.
+Fully cooked, this strata often remains more moist and tender than plain
+scrambled eggs. If it puffed up, it's cooked. Taste it and see.)*
