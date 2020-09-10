@@ -1,12 +1,12 @@
 # Test Kitchen Strata
 
-Serves 4-6.
+Serves 6-8.
 
 *A brunch favorite from season 1 of the _America's Test Kitchen_ TV show.*
 
 *Perfect for brunch because (1) you do all the work the previous night,
 leaving you free to prep other stuff on brunch morning; (2) you can
-double the recipe and serve 12, no trouble, and bake both in your oven
+double the recipe and serve 16, no trouble, and bake both in your oven
 side by side; (3) it's too much food for a normal-sized meal, yet it
 goes best with a few light, fresh side dishes—even more food—since it's
 rather filling.*
