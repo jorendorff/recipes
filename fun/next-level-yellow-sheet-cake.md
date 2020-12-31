@@ -1,6 +1,6 @@
 # Next-Level Yellow Sheet Cake
 
-*[by Andrea Geary for _Cook's Illustrated_, Sepetmber 2020
+*[by Andrea Geary for _Cook's Illustrated_, September 2020
 issue](https://www.cooksillustrated.com/articles/2456-next-level-yellow-sheet-cake).
 An extraordinary cake. Beautifully balanced: sweet but not too sweet,
 light but with a fine texture, soft but somehow also sturdy.*
