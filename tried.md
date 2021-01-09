@@ -1,3 +1,10 @@
+## Pumpkin muffins
+
+https://www.allrecipes.com/recipe/24011/pumpkin-muffins-ii/
+
+Olivia liked this one even though I just followed the recipe. I meant to
+put in some molasses and some oatmeal. Used canned pumpkin.
+
 ## Chicken tinga and black beans
 
 I like this recipe. Tripled the amount of garlic and used two chipotle

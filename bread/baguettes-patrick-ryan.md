@@ -9,7 +9,7 @@ refrigerator temperature.)*
 
 ## Day 1
 
--   450g bread flower
+-   450g bread flour
 -   1 1/4 tsp (7g) salt
 -   290mL water
 -   3/4 tsp (2.5g) instant dry yeast
