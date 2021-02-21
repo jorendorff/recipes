@@ -1,4 +1,4 @@
-# Sandwich bread
+# Whole wheat sandwich bread
 
 *From <https://anoregoncottage.com/whole-wheat-sandwich-bread-101/>.
 Makes good toast and sandwiches. I like the flavor.*
@@ -21,7 +21,7 @@ Makes good toast and sandwiches. I like the flavor.*
 
     * [ ] 2 1/2 teaspoons salt
 
-    * [ ] 4 cups bread flour (or whole wheat flour)
+    * [ ] 4 cups bread flour (and/or whole wheat flour)
 
     Mix in mixer, adding 1 or 2 tablespoons of flour at a time until
     it's only medium sticky (no longer absurdly sticky). *(Sorry. I
