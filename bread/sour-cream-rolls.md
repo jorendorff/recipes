@@ -1,5 +1,8 @@
 ## Sour Cream & Chive Potato Rolls
 
+*Fluffy, buttery, were devoured by the family. They took a really long
+time to rise, for me, something like 2 hours for the second rise.*
+
 Combine in mixer bowl until cohesive:
 
 * [ ] 1 cup sour cream or plain Greek yogurt
@@ -25,4 +28,3 @@ puffy, about 60 minutes.
 While the bread or rolls are rising, preheat the oven to 350°F.
 
 Bake the rolls until light golden brown, 22 to 27 minutes.
-

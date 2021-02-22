@@ -1,9 +1,40 @@
+## Cooking with Julia white bread
+
+Made it with whole wheat flour. Fantastic.
+
+
+## Oatmeal bread
+
+https://www.kingarthurbaking.com/recipes/vermont-whole-wheat-oatmeal-honey-bread-recipe
+
+Came out lovely. The cinnamon flavor is strong; I made a swirl of this
+and the _Cooking with Julia_ white, and it was a wonderful treat.
+
+I seem to remember this is my favorite so far. I might try 1/8 teaspoon
+instead of 1 teaspoon sometime, to see if it's better as sandwich bread.
+
+
+## King Arthur's 100% Whole Wheat Sandwich Bread
+
+https://www.kingarthurbaking.com/recipes/king-arthurs-100-whole-wheat-sandwich-bread-recipe
+
+Seed bread. I threw in poppy seeds, sesame seed, and flax seed.
+
+It made an extremely tough dough at first, but after the first rise it
+was very nice!  Doubling this recipe makes a bit much; the loaves rose
+well and were enormous.  Maybe just 7 cups of flour next time (single
+recipe calls for 4).
+
+Very high-rising and very tender. Delicious.
+
+
 ## Pumpkin muffins
 
 https://www.allrecipes.com/recipe/24011/pumpkin-muffins-ii/
 
 Olivia liked this one even though I just followed the recipe. I meant to
 put in some molasses and some oatmeal. Used canned pumpkin.
+
 
 ## Chicken tinga and black beans
 
