@@ -4,8 +4,8 @@
 
 Do not prep the potatoes ahead of time or store them in water.
 
-Double this recipe: use a large Dutch oven instead of a saucepan, and
-let the casserole cool for 30 minutes instead of 15 at the end.
+If you double this recipe, be sure to use two small casserole dishes instead of
+a big one. Otherwise it'll come out soupy.
 
 *   Adjust oven rack to upper-middle position and heat oven to 425°.
 
