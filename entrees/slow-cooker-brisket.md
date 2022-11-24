@@ -48,3 +48,6 @@ with the cooking liquid.
 *(Sandwiches: open sesame buns on a baking sheet, add slices of brisket to both
 top and bottom halves, cover with cheddar cheese and raw sliced red onion.
 Toast, smash together, add a little mayo and spicy BBQ sauce.)*
+
+*(Consider tacos next time: chop it up, fry in coconut oil, and toss with lime
+juice.)*
