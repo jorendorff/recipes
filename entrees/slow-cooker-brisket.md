@@ -2,19 +2,17 @@
 
 https://www.foodnetwork.com/recipes/food-network-kitchen/slow-cooker-brisket-3364948
 
+Trim some of the fat from
+
+* [ ] a 3.5-pound beef brisket
+
+*(Or a 7-pound brisket as long as it'll fit in the slow cooker. You don't need to double the paste; 1.5x will do.)*
+
 In a small bowl whisk together:
-
-* [ ] 1/4 cup bourbon (marsala worked fine)
-
-* [ ] 2 tablespoons Dijon mustard
 
 * [ ] 1 tablespoon chili powder
 
 * [ ] 1 tablespoon smoked paprika
-
-* [ ] 1 tablespoon dark brown sugar
-
-* [ ] a bulb of garlic, crushed
 
 * [ ] 2 teaspoons onion powder
 
@@ -23,6 +21,14 @@ In a small bowl whisk together:
 * [ ] 1 tablespoon salt
 
 * [ ] 1 teaspoon pepper
+
+* [ ] 1/4 cup bourbon (marsala worked fine)
+
+* [ ] 2 tablespoons Dijon mustard
+
+* [ ] 1 tablespoon dark brown sugar
+
+* [ ] a bulb of garlic, crushed
 
 Use a fork to pierce deeply all over the brisket, then place in the slow cooker
 and rub all over with the paste. Cover and cook on low until a meat thermometer
