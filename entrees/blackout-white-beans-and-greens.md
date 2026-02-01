@@ -71,7 +71,7 @@ Add:
 
 Hope for the best. Watch the temperature decline. Wince. Fret. Try various irrelevant tricks to get the charcoal to catch.
 
-When it gets down to 275&deg; (about 10 minutes), in desperation, go inside and sheepishly ask for
+When it gets down to 275&deg; (about 15 minutes), in desperation, go inside and sheepishly ask for
 
 * [ ] a hot log from the fire
 
@@ -79,7 +79,7 @@ Promise to replace it. Select a log that is not actively emitting flames, but mo
 
 Realize there is now a log-shaped zone of blazing heat inside the otherwise cool grill. Occaionally crack the lid and rotate the grill within to keep the chicken from burning.
 
-Cook for a total of almost 15 minutes on each side. Remove.
+Cook until an undeserved miracle occurs and the meat becomes smoky and delicious, 5 or 10 minutes more on each side. Remove.
 
 Serve with the beans and:
 * [ ] a squeeze of lemon juice
