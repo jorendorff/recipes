@@ -53,14 +53,14 @@ Simmer another 15 minutes. Remove herbs, taste for salt.
 
 Place a round kettle-style charcoal grill outside, in the freezing cold. Remove the grill from the grill. Cleverly add:
 
-* [ ] hot embers and ashes from the wood-burning stove
 * [ ] charcoal
+* [ ] hot embers and ashes from the wood-burning stove, to light the charcoal, since you're low on matches actually, and a bit worried you will run out and subsequently all freeze and die
 
 It won't catch. It's too cold. Add
 
 * [ ] 8-10 briquettes of match-light charcoal
 
-Waste several matches trying to match-light it. When it finally lights, add:
+Waste umpteen matches trying to match-light it. When it finally lights, add:
 
 * [ ] a 6-inch stick of cedar wood you previously found on the side of the road (optional)
 
@@ -83,7 +83,7 @@ Cook until an undeserved miracle occurs and the meat becomes smoky and delicious
 
 Serve with the beans and:
 * [ ] a squeeze of lemon juice
-* [ ] fresh parmesan cheese
+* [ ] freshly grated parmesan cheese
 
 ----
 
