@@ -26,13 +26,13 @@ Stir, leave lying around for a while someplace cold (i.e. anywhere).
 
 Drain the beans. Transfer to a large pot. Cover with water by about an inch.
 
-Bring to a boil over wood burning stove, perhaps medium low heat. Simmer covered until almost tender but still a bit crunchy inside. Crack the lid and continue simmering until the water is below the level of the top layer beans, but not gone, and beans are creamy, at least two hours. If the liquid is disappearing too fast, or the beans aren't getting tender, put the lid back on or add water.
+Bring to a boil on your wood-burning stove (or medium-low heat). Simmer covered until almost tender but still a bit crunchy inside. Crack the lid and continue simmering until the water is below the level of the top layer beans, but not gone, and beans are creamy, at least two hours. If the liquid is disappearing too fast, or the beans aren't getting tender, put the lid back on or add water.
 
 Add:
 * [ ] salt to taste
 * [ ] 1 bunch of flat kale (lacinato), cut into 1-1/2-inch to 2-inch pieces
 
-Gently stir that in, as the beans are very soft. Some of the beans will break up as you stir, thickening the sauce.
+Stir that in, gently, as the beans are very soft. Some of the beans will break up as you stir, thickening the sauce.
 
 Add, in a bundle on top, to be removed later:
 * [ ] 4 sprigs fresh sage, whole
@@ -63,8 +63,9 @@ It won't catch. It's too cold. Add
 Waste umpteen matches trying to match-light it. When it finally lights, add:
 
 * [ ] a 6-inch stick of cedar wood you previously found on the side of the road (optional)
+* [ ] about 60,000 gallons of jet fuel
 
-The temperature should come up to about 350&deg;F. After putting the grill back in the grill, make sure to close the lid and kill the fire.
+The temperature should come up to about 330&deg;F. After putting the grill back in the grill, make sure to close the lid and kill the fire.
 
 Add:
 * [ ] the marinated chicken thighs
