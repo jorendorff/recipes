@@ -29,8 +29,8 @@ Drain the beans. Transfer to a large pot. Cover with water by about an inch.
 Bring to a boil on your wood-burning stove (or medium-low heat). Simmer covered until almost tender but still a bit crunchy inside. Crack the lid and continue simmering until the water is below the level of the top layer beans, but not gone, and beans are creamy, at least two hours. If the liquid is disappearing too fast, or the beans aren't getting tender, put the lid back on or add water.
 
 Add:
+* [ ] 1 bunch of flat kale (lacinato), stemmed and cut into 1-1/2-inch to 2-inch pieces
 * [ ] salt to taste
-* [ ] 1 bunch of flat kale (lacinato), cut into 1-1/2-inch to 2-inch pieces
 
 Stir that in, gently, as the beans are very soft. Some of the beans will break up as you stir, thickening the sauce.
 
@@ -47,7 +47,7 @@ as necessary to bring the liquid level just to the top of the beans.
 
 Simmer another 15 minutes over the same medium-low heat. Gently stir to rotate the kale.
 
-Simmer another 15 minutes. Remove herbs, taste for salt.
+Simmer, reducing until the liquid level is again below the top layer of beans, about another 15 minutes. Remove herbs, taste for salt.
 
 **Meanwhile:**
 
