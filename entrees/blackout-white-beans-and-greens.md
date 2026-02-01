@@ -85,7 +85,7 @@ Serve with the beans and:
 * [ ] a squeeze of lemon juice
 * [ ] fresh parmesan cheese
 
-~~~~
+----
 
 After dinner, go out to put away the grill and discover that all that charcoal finally caught and it's now at 450&deg;. Toast
 
