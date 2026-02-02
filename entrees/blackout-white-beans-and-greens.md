@@ -16,6 +16,7 @@ In a 2-quart plastic box, combine:
 
 * [ ] 2-3 lbs. chicken thighs
 * [ ] enough olive oil to coat
+* [ ] 2 tsp salt
 * [ ] 6 cloves garlic, chopped into matchsticks
 * [ ] 1/2 tsp dried oregano, crushed with your hand, man style
 * [ ] 1 tsp dried basil, crushed
@@ -44,9 +45,7 @@ Add:
 
 Simmer another 15 minutes. Gently stir to rotate the kale.
 
-Continue simmering, reducing until the liquid level is again below the top layer of beans, about another 15 minutes. Remove herbs and add:
-
-* [ ] salt to taste
+Continue simmering, reducing until the liquid level is again below the top layer of beans, about another 15 minutes. Remove herbs and taste again for salt.
 
 **Meanwhile:**
 
@@ -59,7 +58,7 @@ It won't catch. It's too cold. Add
 
 * [ ] 8-10 briquettes of match-light charcoal
 
-Waste umpteen matches trying to match-light it. When it finally lights, add:
+Waste umpteen matches trying to match-light it. When it finally lights, add
 
 * [ ] a 6-inch stick of cedar wood you previously found on the side of the road (optional)
 * [ ] about 60,000 gallons of jet fuel
@@ -84,7 +83,7 @@ Cook until an undeserved miracle occurs and the meat becomes smoky and delicious
 Remove the herb bundle from the beans. Stir in:
 * [ ] 1/4 cup butter mixed with 1 1/2 tsp peri peri sauce that's been sitting in your refrigerator in an unlabeled tub for three weeks
 
-Serve with the beans and:
+Serve with the beans and
 * [ ] a squeeze of lemon juice
 * [ ] freshly grated parmesan cheese
 
