@@ -82,6 +82,9 @@ Realize there is now a log-shaped zone of blazing heat inside the otherwise cool
 
 Cook until an undeserved miracle occurs and the meat becomes smoky and delicious, 5 or 10 minutes more on each side. Remove.
 
+Stir into the beans:
+* [ ] 1/4 cup butter mixed with 1 1/2 tsp peri peri sauce that's been sitting in your refrigerator for three weeks
+
 Serve with the beans and:
 * [ ] a squeeze of lemon juice
 * [ ] freshly grated parmesan cheese
