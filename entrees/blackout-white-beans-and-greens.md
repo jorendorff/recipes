@@ -22,7 +22,7 @@ In a 2-quart plastic box, combine:
 * [ ] 1/2 tsp dried thyme, crushed
 * [ ] 2/3 cup full-fat greek yogurt
 
-Stir, leave lying around for a while someplace cold (i.e. anywhere).
+Stir, then set aside someplace cool (i.e. anywhere).
 
 Drain the beans. Transfer to a large pot. Cover with water by about an inch.
 
@@ -40,14 +40,13 @@ Add, in a bundle on top, to be removed later:
 
 Add:
 * [ ] 1/2 tsp red pepper flakes, or to taste
+* [ ] chicken broth as necessary to bring the liquid level just to the top of the beans.
 
-Add:
-* [ ] chicken broth
-as necessary to bring the liquid level just to the top of the beans.
+Simmer another 15 minutes. Gently stir to rotate the kale.
 
-Simmer another 15 minutes over the same medium-low heat. Gently stir to rotate the kale.
+Continue simmering, reducing until the liquid level is again below the top layer of beans, about another 15 minutes. Remove herbs and add:
 
-Simmer, reducing until the liquid level is again below the top layer of beans, about another 15 minutes. Remove herbs, taste for salt.
+* [ ] salt to taste
 
 **Meanwhile:**
 
@@ -82,8 +81,8 @@ Realize there is now a log-shaped zone of blazing heat inside the otherwise cool
 
 Cook until an undeserved miracle occurs and the meat becomes smoky and delicious, 5 or 10 minutes more on each side. Remove.
 
-Stir into the beans:
-* [ ] 1/4 cup butter mixed with 1 1/2 tsp peri peri sauce that's been sitting in your refrigerator for three weeks
+Remove the herb bundle from the beans. Stir in:
+* [ ] 1/4 cup butter mixed with 1 1/2 tsp peri peri sauce that's been sitting in your refrigerator in an unlabeled tub for three weeks
 
 Serve with the beans and:
 * [ ] a squeeze of lemon juice
