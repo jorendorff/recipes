@@ -8,10 +8,6 @@ Peel:
 
 * [ ] 12 to 15 whole medium shallots
 
-Halve:
-
-* [ ] 2 cups cherry tomatoes
-
 Pat very dry with paper towels:
 
 * [ ] 8 bone-in, skin-on chicken thighs
@@ -44,4 +40,8 @@ Cover the pot, turn the heat to low and simmer for 30 minutes.
 
 Remove the lid and allow the sauce to reduce and thicken, 15 to 20 minutes.
 
-Add the cherry tomatoes and stir lightly to combine. Serve immediately.
+Add
+
+* [ ] 2 cups cherry tomatoes, halved
+
+Stir lightly to combine and serve immediately.
