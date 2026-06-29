@@ -4,7 +4,9 @@
 
     * [ ] 3-4 pounds of salmon
 
-    Cut it into 1"-by-2" chunks.
+    Pat dry.
+
+    Cut it into 1"-by-2" chunks. Season with salt.
 
 2.  Prepare vegetables (each one optional, but the more the better):
 
@@ -44,6 +46,8 @@
 
     * [ ] the rest of the can of coconut cream
     * [ ] 2 additional 14.5-oz cans of coconut milk
+    * [ ] 1 tbsp soy sauce
+    * [ ] 1 tbsp fish sauce
     * [ ] the eggplant
 
     Turn the heat to high and bring to a boil. Reduce heat, cover, and simmer 20 minutes.
