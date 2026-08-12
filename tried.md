@@ -196,3 +196,23 @@ scorched parts masked it).
 https://www.youtube.com/watch?v=PH-GPARbRWs
 
 Not bad at all. I really want more of a crust though.
+
+
+## Chocolate buttermilk cake
+
+https://www.atablefullofjoy.com/homemade-chocolate-cake/#recipe
+
+It came out great despite our oven issues.
+
+
+## Vanilla custard
+
+https://insanelygoodrecipes.com/vanilla-custard/#hubbub
+
+We made a 3/2 recipe of this without increasing the amount of cornstarch, in order to get a
+pourable custard to serve hot with our chocolate cake and fresh strawberries. Fabulous.
+
+
+## Slow cooker pot roast
+
+https://www.thepioneerwoman.com/food-cooking/recipes/a42388766/slow-cooker-pot-roast-recipe/
