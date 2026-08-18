@@ -11,7 +11,7 @@ https://urbanfarmie.com/spinach-avocado-salad/#wprm-recipe-container-3636
 Whisk together:
 
 - [ ] juice of 2 lemons
-- [ ] 1/4 cup sugar
+- [ ] 2 tbsp sugar
 
 Dissolve the sugar. Then whisk in:
 
